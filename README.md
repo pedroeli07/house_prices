@@ -1,3 +1,31 @@
+  - Dentro de 14 dias após a chegada, registre-se no **Einwohnermeldeamt** (escritório de registro local) da sua cidade
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # Guia Completo para Mudança e Trabalho na Alemanha para Profissionais de TI
 
 Você é um programador com quase 2 anos de experiência em TI e recebeu uma oferta de emprego na Alemanha. Este guia detalha tudo o que você precisa saber para se mudar e trabalhar legalmente na Alemanha, incluindo informações sobre o **Cartão Azul (EU Blue Card)**, outros vistos, documentos necessários, contatos e considerações práticas.
